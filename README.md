@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kejuu225
+- 👋 Hi, I’m @indomie
 - 👀 I’m interested in new thing
 - 🌱 I’m currently learning to improve my skills
 - 💞️ I’m looking to collaborate on ...
